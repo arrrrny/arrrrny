@@ -3,7 +3,7 @@
 
 ## PROCESSES OVER PRODUCTS.  
 PRINCIPLES OVER POPULARITY.  
-WTF OR NOTHING.**  
+**WTF OR NOTHING.**  
 
 We don’t *‘launch’*—**we detonate.**  
 If **Version 1** doesn’t make **WE** say **WTF**, we failed.  
