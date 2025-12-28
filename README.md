@@ -7,7 +7,7 @@
 
 We don’t *‘launch’*—**we detonate.**  
 If **Version 1** doesn’t make **WE** say **WTF**, we failed.  
-Markets are fairy tales. **WE write the fucking rules.**  
+Markets are delusions. **WE write the fucking rules.**  
 
 - **Efficiency is our scalpel.**  
 - **Redundancy is our bunker.**  
