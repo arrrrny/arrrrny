@@ -6,7 +6,7 @@
 ## **WTF OR NOTHING.**  
 
 We don’t *‘launch’*—**we detonate.**  
-If **Version 1** doesn’t make **WE** say **WTF**, we failed.  
+If **Version 1** don’t make **WE** say **WTF**, we failed.  
 Markets are delusions. **WE write the fucking rules.**  
 
 - **Efficiency is our scalpel.**  
