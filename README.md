@@ -26,7 +26,7 @@ Markets are delusions. **WE write the fucking rules.**
 - **Redundancy is our bunker.**  
 - **Speed is our heartbeat.**  
 - **AI is our blood.**  
-We build what **shouldn’t exist**—then make them **inevitable.**  
+We build what **shouldn’t exist**—then make it **inevitable.**  
 
 **No ‘good enough’. No ‘pivot later’.**  
 **Every. Commit. Must. Vaporize. Assumptions.**  
