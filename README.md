@@ -36,3 +36,9 @@ We build what **shouldn’t exist**—then make it **inevitable.**
 
 
 # AIify, Automate, Replicate, Dominate
+
+<div align="center">
+
+![Profile Views](https://komarev.com/ghpvc/?username=arrrrny&label=Profile+Views&color=0e75b6&style=flat)
+
+</div>
